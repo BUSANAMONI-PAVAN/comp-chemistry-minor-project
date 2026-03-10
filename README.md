@@ -184,9 +184,11 @@ Example output:
 
 
 
-Pavan
+2300039073@kluniversity.in
 
 B.Tech Computer Science Engineering (DevOps Specialization)
+
+in KL UNIVERSITY VIJAYAWADA
 
 
 
